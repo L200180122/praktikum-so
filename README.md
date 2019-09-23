@@ -1,0 +1,2 @@
+# praktikum-so
+HESTI SEFRIA NURFITRI / L200180160
